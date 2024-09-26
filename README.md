@@ -7,6 +7,8 @@
 - [Facebook](https://www.facebook.com)
 - [Instagram](https://instagram.com)
 
+# Favorite Bible Verse
+- "Therefore what God has joined together, let no one separate." Mark 10:9
 
   ---
 
